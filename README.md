@@ -1,11 +1,11 @@
-# ⸺ ❛ cause [someone](https://www.youtube.com/watch?v=zNd4apsr3WE) really cares about you. ❜
-![sans.](https://i.postimg.cc/52yS3j6S/image-2024-03-17-220458766.png)
+# 🏝 ⸺ ❛ desert sand [feels warm](https://www.youtube.com/watch?v=zNd4apsr3WE) at night . ❜
+![flowey and frisk](https://i.postimg.cc/L8Bhsfw5/68747470733a2f2f692e706f7374696d672e63632f5871643337576d362f696d6167652d323032342d30332d32312d323330.png)
 
-🦴💤 ‎ ‎ ‎ ◡◡ ‎ ‎ ‎ **chise** ‎ ‎ ‎or ‎ ‎ **‎quill** ‎ ‎ ‎.ᐟ ‎ ‎ ‎ ₊ ‎ ‎ ‎ udd+tism ‎ ‎ ‎ / ‎ ‎ ‎ libramasc veldian ‎ ‎ ‎ ‎ ‎ ‎⊂ ‎ ‎ ‎ ‎ ‎ **it** ‎ ‎ ｡ ‎ ‎ hy ‎ ‎ ｡ ‎ ‎ **masc**neu trms ♡ 
+　　　　🐝🌿 ‎ ‎ ‎ ⌣⌣ ‎ ‎ ‎ **chisé** ‎ ‎ ‎or ‎ ‎ **‎mare** ‎ ‎ ‎ ₊ ‎ ‎ ‎ aspd-coded [nightmare](https://undertale-au-fanon.fandom.com/wiki/Dreamtale/Corrupted!Nightmare) kinnie ‎ ‎ ‎ ∿ ‎ ‎ ‎ udd‎ ‎ ,‎ ‎ autism‎ ‎ ++‎ ‎ unlisted
 
-i am mostly **offtab** / **multitasking** / **napping** when i'm on ponytown, so it's best to whisper me - [extended info.](https://rentry.co/Iightners)
+most times, i'll be **offtab** / **multasking** / **away** 　‎  　‎ whisper me if you deem fit - slow responses.
 
-`summarized dni` basic dni, procomship, drama fiends, syscord dwellers
+`✚　summarized　dni`　　fit basic dni , procomship , syscord dwellers , drama fiends
 
 
 ***
